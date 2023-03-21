@@ -31,6 +31,7 @@
 
 ## :mailbox: Contact and socials
 joanna.smolinska.cool@gmail.com
+
 www.linkedin.com/in/joanna-smolińska-ba628126b/
 
 
