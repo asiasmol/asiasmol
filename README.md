@@ -6,7 +6,7 @@
 
 👍 I am an open-minded, active and sociable person. Sometimes the introvert in me comes out, but not too often. I love making new friends, gaining new experiences and I can't imagine my life without people around me. I am ready for new challenges, since they motivate me to try even harder.
 
-📸 Apart from that, I am a video maker.  I mainly record shots from my everyday life, but what I like the most is to create product videos. I'm posting a link to my profile:  
+📸 Apart from that, I am a video maker.  I mainly record shots from my everyday life, but what I like the most is to create product videos.  
 🎞️
 
 📚 I love reading books and riding a bike. Well, when it comes to books, I usually choose the ones about personal development or crime stories. I am currently reading The Motivation Myth by Jeff Haden. My favorite crime stories is The Mysterious Affair at Styles by Agatha Christie. When it comes to cycling, I love long routes and fast riding.
