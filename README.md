@@ -2,7 +2,7 @@
 
 ## :sparkles: About me
 
-💻 I am currently looking for a job as junior engineer that would give me an opportunity to grow and learn new things.
+💻 I am currently looking for a job as junior engineer that would give me an opportunity to grow and learn new things. 
 
 👍 I am an open-minded, active and sociable person. Sometimes the introvert in me comes out, but not too often. I love making new friends, gaining new experiences and I can't imagine my life without people around me. I am ready for new challenges, since they motivate me to try even harder.
 
