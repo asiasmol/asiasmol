@@ -38,6 +38,7 @@
   <img align="left" alt="LinkedIN" width="40px" src="https://raw.githubusercontent.com/peterthehan/peterthehan/master/assets/linkedin.svg" />  
 </a> 
 
+![Zrzut ekranu 2023-06-18 o 22 42 50](https://github.com/asiasmol/asiasmol/assets/102509876/560b8945-c6f2-4c28-83d1-38a6396c0f60)
 
 
 
