@@ -2,12 +2,9 @@
 
 ## :sparkles: About me
 
-💻 I am currently looking for a job as junior engineer that would give me an opportunity to grow and learn new things. 
+💻 I am full of passion and enthusiasm for programming, seeking opportunities for growth as a Junior Fullstack Developer. My experience includes designing and developing responsive web applications and databases using both front-end and back-end technologies. I have the ability to work both independently and as part of a team, effectively contributing to project goals. I demonstrate great commitment to acquiring new technical skills and I am always open to new challenges. My determination, fast learning ability, and problem-solving skills form a strong foundation for my career in the IT industry. I would like to join a team that offers inspiring projects and the opportunity for further professional development as a Junior Fullstack Developer.
 
-👍 I am an open-minded, active and sociable person. Sometimes the introvert in me comes out, but not too often. I love making new friends, gaining new experiences and I can't imagine my life without people around me. I am ready for new challenges, since they motivate me to try even harder.
-
-📸 Apart from that, I am a video maker.  I mainly record shots from my everyday life, but what I like the most is to create product videos.  
-🎞️
+📸 Apart from that, I am a video maker.  I mainly record shots from my everyday life, but what I like the most is to create product videos. 🎞️
 
 📚 I love reading books and riding a bike. Well, when it comes to books, I usually choose the ones about personal development or crime stories. I am currently reading The Motivation Myth by Jeff Haden. My favorite crime stories is The Mysterious Affair at Styles by Agatha Christie. When it comes to cycling, I love long routes and fast riding.
 
