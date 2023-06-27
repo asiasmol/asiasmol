@@ -26,14 +26,8 @@
     <img align="left"alt="Java"width="50px"src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/postgresql/postgresql.png" />
 </div>
 
-<br><br>
-## :mailbox: Contact and socials
-<a href="mailto:joanna.smolinska.cool@gmail.com">
-  <img align="left" alt="email" width="40px" src="https://upload.wikimedia.org/wikipedia/commons/7/7e/Gmail_icon_%282020%29.svg" />
-</a>
-<a href="https://www.linkedin.com/in/joanna-smolińska-ba628126b/">
-  <img align="left" alt="LinkedIN" width="40px" src="https://raw.githubusercontent.com/peterthehan/peterthehan/master/assets/linkedin.svg" />  
-</a> 
+
+
 
 ![Zrzut ekranu 2023-06-18 o 22 42 50](https://github.com/asiasmol/asiasmol/assets/102509876/560b8945-c6f2-4c28-83d1-38a6396c0f60)
 
